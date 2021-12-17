@@ -1,1 +1,1 @@
-# Why you should watch JoJo's Bizarre Adventure (TV Series 2012– )
+# Why you should watch JoJo's Bizarre Adventure
